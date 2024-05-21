@@ -14,6 +14,7 @@
 **Master of Digital Innovation - Data Science**  
 Halifax, Nova Scotia  
 *Sep 2023 – Jan 2025*
+**GPA:** 4.19/4.3
 
 ### National Institute of Technology, Hamirpur
 **Bachelor of Technology in Electronics and Communication Engineering**  
